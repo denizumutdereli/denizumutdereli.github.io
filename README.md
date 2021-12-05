@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="93xsbpjL5i15P1ZAlNGekH7mYKhMXBfupvr0PCKNMs8" />
 ## Deniz Umut Dereli GitHub Pages Home
 
 
